@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming
 - 🌱 I’m currently student multimedia 
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me | Discord: GodZHUlla#6969 | Instagram: godzhulla | GitHub: GodZHUlla/GodZHUlla
+- 📫 How to reach me | Discord: GodZHUlla#6969 | Instagram: jzp.raw | GitHub: GodZHUlla/GodZHUlla
 
 <!---
 GodZHUlla/GodZHUlla is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
